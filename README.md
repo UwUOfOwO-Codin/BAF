@@ -14,3 +14,7 @@ PLAY IT NOW PLEASE I BEG YOU
 
 controls
 ![controls](https://github.com/UwUOfOwO-Codin/BAF/blob/a68c0af501283295532550d4db2a42ccc3194e49/assets/e720c6fc17397f258c5c560922cb9d95.svg)
+
+
+
+did i add to much images?... yea i did add too much images
