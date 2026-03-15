@@ -10,3 +10,7 @@ toby fox,silvagunner and roblox for some of the music
 pretty coolio right?
 
 PLAY IT NOW PLEASE I BEG YOU
+
+
+controls
+![controls](https://github.com/UwUOfOwO-Codin/BAF/blob/a68c0af501283295532550d4db2a42ccc3194e49/assets/e720c6fc17397f258c5c560922cb9d95.svg)
